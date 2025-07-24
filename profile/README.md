@@ -1,4 +1,4 @@
-## La comunidad Colombiana de empleo mas grande en reddit
+La comunidad Colombiana de empleo mas grande en reddit
 <!--
 
 **Here are some ideas to get you started:**
